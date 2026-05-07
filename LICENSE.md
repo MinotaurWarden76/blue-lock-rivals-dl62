@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with exclusive Scripts for blue lock rivals, the #1 Script. Includes infinite resources and
 
 
 
